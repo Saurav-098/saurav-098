@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Saurav Kumar
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate Software Engineer from India**
 
 Email Me 👉 ✉️ **sauravkumar765423@gmail.com.com** For Collaboration/Project or Anything Else. 😊😊
 - 📫 **How to reach me:** Enter your email here
