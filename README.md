@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **sauravkumar765423@gmail.com.com** For Collaboration/Project or Anything Else. 😊😊
 - 📫 **How to reach me:** Enter your email here
-- 😄 **Pronouns:** sauarav
+- 😄 **Pronouns:** saurav
 - ⚡ **Fun fact:** I Love coding and codes Love Me
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sauarv__vibes__) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/saurav098 ) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:sauravkumar765423@gmail.com) 
